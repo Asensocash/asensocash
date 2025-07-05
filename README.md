@@ -1,1 +1,1 @@
-asdwtest-phl-api.fyinformation.ccadwad
+asdwapi.asensocash.comadwad
